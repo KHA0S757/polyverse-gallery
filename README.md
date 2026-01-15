@@ -1,2 +1,2 @@
 # polyverse-gallery
-Where the things of the PolyVerSe Live...
+3D relics, experimental drops, and things that probably shouldn’t exist — but do.
